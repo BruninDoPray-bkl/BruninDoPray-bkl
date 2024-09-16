@@ -1,4 +1,6 @@
-## Angel Daiman 🤠
+## Olá, seja bem vindo ao perfil de BruninDoPray
+Me chamo Bruno Klimaczewski Lopez e estou no 1o Ano do Ensino Médio, estudo no colégio Jardim Porto Alegre
+![](https://media.giphy.com/media/Z986S0v0itFVATd1jF/giphy.gif?cid=790b76110sknudimkulksu7gttuflfdte4whia1tt7tp8ntn&ep=v1_gifs_search&rid=giphy.gif&ct=g)
 
 <!--
 **BruninDoPray-bkl/BruninDoPray-bkl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
